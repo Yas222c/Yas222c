@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Yas222c
 - 👀 I’m interested in to eat ice cream
-- 🌱 I’m currently learning programinha language
+- 🌱 I’m currently learning programming language
 - 💞️ I’m looking to collaborate on learn
 - 📫 How to reach me by Carrier pigeon
 - 😄 Pronouns: yas,yasminions
